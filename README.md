@@ -1,6 +1,6 @@
 ## Hello, I'm Faiz👋
 
-👨‍🎓 Fresh Grad with a Bachelor of Information Technology in Software Engineering <br /> <br />
+👨‍🎓 Fresh Grad with a Bachelor of Information Technology (Hons.) in Software Engineering <br /> <br />
 💡 Interested in learning and improving programming and problem-solving skills <br /> <br />
 🚀 Actively seeking opportunities to connect and collaborate <br /> <br />
 🔎 Always exploring new tools and technologies <br /> <br />
